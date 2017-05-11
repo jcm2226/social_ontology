@@ -44,27 +44,17 @@
 
 
 
- Session 2a
+#### Session 2a
 
+- Andrew Payne \(Associate Professor, Saint Joseph’s University\)
 
+>“Apology, Shared Action and the Limits of Intention”
 
- • Andrew Payne \(Associate Professor, Saint Joseph’s University\)
+- Kevin Schilbrack \(Professor, Appalachian State University\)
 
+>“Religion as Joint Commitment”
 
-
- o “Apology, Shared Action and the Limits of Intention”
-
-
-
- • Kevin Schilbrack \(Professor, Appalachian State University\)
-
-
-
- o “Religion as Joint Commitment”
-
-
-
- Session 2b
+#### Session 2b
 
 
 
@@ -320,7 +310,7 @@
 
  • Email:
 
- \[\*criticalsocialontologyworkshop@gmail.com\*\]\(mailto:criticalsocialontologyworkshop@gmail.com\)
+ *[criticalsocialontologyworkshop@gmail.com*](mailto:criticalsocialontologyworkshop@gmail.com)*
 
 
 
