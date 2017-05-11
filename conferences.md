@@ -1,190 +1,199 @@
-## Critical Social Ontology Workshop - 1st Annual Meeting
+ Critical Social Ontology Workshop - 1st Annual Meeting
 
-### June 16th-17th, 2017
+ June 16th-17th, 2017
 
-**McGannon Hall - Saint Louis University, MO**
+ McGannon Hall - Saint Louis University, MO
 
-### Friday, June 16th 9:30
+ Friday, June 16th
 
-* Welcome
+ 9:30 Welcome
 
-#### 10:00-11:30
+ 10:00-11:30
 
-**Session 1a**
+ Session 1a
 
-* Joshua Rust \(Associate Professor, Stetson University\)
+ • Joshua Rust (Associate Professor, Stetson University)
 
-> “Real Social Kinds and the Continuity Between Institutional Statuses and Technical Artifacts”
+ o “Real Social Kinds and the Continuity Between Institutional Statuses
+ and
 
-* Jules Salomone \(Graduate Student, CUNY\)
+ Technical Artifacts”
 
-> “Grades of Realism in Social Ontology”
+ • Jules Salomone (Graduate Student, CUNY)
 
-**Session 1b**
+ o “Grades of Realism in Social Ontology”
 
-* Larry Busk, \(Graduate Student, University of Oregon\)
+ Session 1b
 
-> “Islands of Freedom and Seas of Necessity: Arendt’s Disjunctive Political Ontology”
+ • Larry Busk, (Graduate Student, University of Oregon)
 
-* Timothy Rutzou \(Postdoctoral Fellow, Yale\)
+ o “Islands of Freedom and Seas of Necessity: Arendt’s Disjunctive
+ Political
 
-> “After Naturalism: Social Ontology and the Contingent Ground of Value”
+ Ontology”
 
-#### Break
+ • Timothy Rutzou (Postdoctoral Fellow, Yale)
 
-11:45-1:15
+ o “After Naturalism: Social Ontology and the Contingent Ground of
+ Value”
 
-#### Session 2a
+ Break
 
-* Andrew Payne \(Associate Professor, Saint Joseph’s University\)
+ 11:45-1:15
 
-> “Apology, Shared Action and the Limits of Intention”
+ Session 2a
 
-* Kevin Schilbrack \(Professor, Appalachian State University\)
+ • Andrew Payne (Associate Professor, Saint Joseph’s University)
 
-> “Religion as Joint Commitment”
+ o “Apology, Shared Action and the Limits of Intention”
 
-#### Session 2b
+ • Kevin Schilbrack (Professor, Appalachian State University)
 
-• Ángeles Eraña \(Investigador Titular A, Instituto de Investigaciones
+ o “Religion as Joint Commitment”
 
-Filosóficas, Universidad Nacional Autónoma de México\)
+ Session 2b
 
-o “A World in Which Many Worlds Fit?”
+ • Ángeles Eraña (Investigador Titular A, Instituto de Investigaciones
+ Filosóficas, Universidad Nacional Autónoma de México)
 
-• Jesse Winter \(Graduate Student, American University\)
+ o “A World in Which Many Worlds Fit?”
 
-o “Mirrors in the Sky: The Crisis of Identity in Drone Warfare”
+ • Jesse Winter (Graduate Student, American University)
 
-Session 3a
+ o “Mirrors in the Sky: The Crisis of Identity in Drone Warfare”
 
-• Brian Epstein \(Associate Professor, Tufts University\)
+ Session 3a
 
-o “Anchoring vs. Grounding”
+ • Brian Epstein (Associate Professor, Tufts University)
 
-• Ruth Groff \(Associate Professor, Saint Louis University\)
+ o “Anchoring vs. Grounding”
 
-o “Are Social Structures \(a\) Entities \(b\) Properties \(c\) Essences \(d\)
+ • Ruth Groff (Associate Professor, Saint Louis University)
 
-Other?”
+ o “Are Social Structures (a) Entities (b) Properties (c) Essences (d)
+ Other?”
 
-Session 3b
+ Session 3b
 
-• Kate Phelan \(Academic, Royal Melbourne Institute of Technology\)
+ • Kate Phelan (Academic, Royal Melbourne Institute of Technology)
 
-o “Social Construction and the Possibility of Emancipation”
+ o “Social Construction and the Possibility of Emancipation”
 
-• Filipa Melo Lopes \(Graduate Student University of Michigan\)
+ • Filipa Melo Lopes (Graduate Student University of Michigan)
 
-o “Misogyny and \(Post-\)Feminist Backlash”
+ o “Misogyny and (Post-)Feminist Backlash”
 
-Break
+ #### Break
 
-4:15-6:15pm
+ 4:15-6:15pm
 
-Session 4
+ ### Session 4a
 
-• Michael Gregory \(Graduate Student, University of South Carolina\)
+ - Tina Fernades Botts (Assistant Professor, California State University, Fresno)
 
-o “Quine, Forms of Life and the Ontological Foundation of Holism”
+>"The Ontology of Group Rights"
 
-• Kevin Houser \(Teaching Fellow, Case Western Reserve University\)
+-  Matthew Shields (Graduate Student, Georgetown University)
 
-o “Reasons as Alienated Social Relations”
+>“The Pragmatics of Changing the Social World”
 
-• Matthew Shields \(Graduate Student, Georgetown University\)
+### Session 4b
 
-o “The Pragmatics of Changing the Social World”
+- Michael Gregory (Graduate Student, University of South Carolina)
 
-Dinner
+>“Quine, Forms of Life and the Ontological Foundation of Holism”
 
-Informal conversation – Hotel Ignacio
+- Kevin Houser (Teaching Fellow, Case Western Reserve University)
 
-Saturday, June 17th
+>  o “Reasons as Alienated Social Relations”
+ 
+- Laura Martin (Graduate Student, Columbia University)
 
-10:00-11:30
+>"The Social Ontology of Systemic Injustice"
 
-Session 1
+>
 
-• Vanessa Wills \(Assistant Professor, George Washington University\)
+ 
 
-o “Individual Action, Social Emergence and ‘the Laws of History’: On
+ Dinner
 
-the
+ Informal conversation – Hotel Ignacio
 
-Collective as a Limit and Condition for Freedom”
+ Saturday, June 17th
 
-• Patrick Murray/Jeanne Schuler \(Professor, Creighton
+ 10:00-11:30
 
-University/Associate
+ Session 1
 
-Professor, Creighton University\)
+ • Vanessa Wills (Assistant Professor, George Washington University)
 
-o “The Commodity Spectrum: Simple Commodities, Commodities That Are
+ o “Individual Action, Social Emergence and ‘the Laws of History’: On
+ the
 
-Commodity Capital, Ex-Commodities, Potential Commodities, Quasi-
+ Collective as a Limit and Condition for Freedom”
 
-Commodities”
+ • Patrick Murray/Jeanne Schuler (Professor, Creighton
+ University/Associate
 
-Session 2
+ Professor, Creighton University)
 
-• Arto Laitinen/Arvi Särkelä \(Professor, University of
+ o “The Commodity Spectrum: Simple Commodities, Commodities That Are
+ Commodity Capital, Ex-Commodities, Potential Commodities, Quasi-
+ Commodities”
 
-Tempere/Lecturer and
+ Session 2
 
-Postdoctoral Researcher, University of Lucerne\)
+ • Arto Laitinen/Arvi Särkelä (Professor, University of
+ Tempere/Lecturer and
 
-o “Four Conceptions of Social Pathology”
+ Postdoctoral Researcher, University of Lucerne)
 
-• Robert Lawrence, \(Mars Hill University\)
+ o “Four Conceptions of Social Pathology”
 
-o “Revolution and Pathology in Non-Atomistic Social Ontology”
+ • Robert Lawrence, (Mars Hill University)
 
-Lunch
+ o “Revolution and Pathology in Non-Atomistic Social Ontology”
 
-2:30-4:00
+ Lunch
 
-Session 3
+ 2:30-4:00
 
-• Kate Ritchie \(Assistant Professor, City College of New York, CUNY\)
+ Session 3
 
-o “Social Structures and the Ontology of Social Groups”
+ • Kate Ritchie (Assistant Professor, City College of New York, CUNY)
 
-• Italo Testa \(Professor, Università di Parma\)
+ o “Social Structures and the Ontology of Social Groups”
 
-o “Habit and Critical Social Ontology”
+ • Italo Testa (Professor, Università di Parma)
 
-Break
+ o “Habit and Critical Social Ontology”
 
-4:15-5:45
+ Break
 
-Session 4
+ 4:15-5:45
 
-• Sally Haslanger \(Professor, MIT\)
+ Session 4
 
-o “Against Individualism, Yet Again!”
+ • Sally Haslanger (Professor, MIT)
 
-• Doug Porpora \(Professor, Drexel\)
+ o “Against Individualism, Yet Again!”
 
-o “Are Parameters Causes?”
+ • Doug Porpora (Professor, Drexel)
 
-5:45-6pm
+ o “Are Parameters Causes?”
 
-Wrap-up
+ 5:45-6pm
 
-• Conference is open to the public -- $0-$30, based on what you can
+ Wrap-up
 
-afford.
+ • Conference is open to the public -- \$0-\$30, based on what you can
+ afford.
 
-• There is a Critical Social Ontology Workshop fb page; website is
+ • There is a Critical Social Ontology Workshop fb page; website is
+ coming soon!
 
-coming soon!
+ • Email:
+ [*criticalsocialontologyworkshop@gmail.com*](mailto:criticalsocialontologyworkshop@gmail.com)
 
-• Email:
-
-[criticalsocialontologyworkshop@gmail.com](link)
-
-• CSOW is: Ruth Groff \(Coordinator\); Sally Haslanger; Tony Lawson;
-
-Doug Porpora; Vanessa Wills; Charlotte Witt.
-
+ • CSOW is: Ruth Groff (Coordinator); Sally Haslanger; Tony Lawson;
+ Doug Porpora; Vanessa Wills; Charlotte Witt.
