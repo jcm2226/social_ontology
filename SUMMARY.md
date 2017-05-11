@@ -2,6 +2,6 @@
 
 * [About](README.md)
 * [People](chapter1.md)
-* Resources
-* Conferences
+* [Resources](resources.md)
+* [Conferences](conferences.md)
 
