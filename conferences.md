@@ -310,7 +310,7 @@
 
  • Email:
 
- *[criticalsocialontologyworkshop@gmail.com*](mailto:criticalsocialontologyworkshop@gmail.com)*
+ [criticalsocialontologyworkshop@gmail.com*](link)*[](mailto:criticalsocialontologyworkshop@gmail.com)*
 
 
 
