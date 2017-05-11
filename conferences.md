@@ -46,49 +46,44 @@
 
 > “Religion as Joint Commitment”
 
-#### Session 2b
+**Session 2b**
 
-• Ángeles Eraña \(Investigador Titular A, Instituto de Investigaciones
+- Ángeles Eraña \(Investigador Titular A, Instituto de Investigaciones
 
 Filosóficas, Universidad Nacional Autónoma de México\)
 
-o “A World in Which Many Worlds Fit?”
+>“A World in Which Many Worlds Fit?”
 
-• Jesse Winter \(Graduate Student, American University\)
+- Jesse Winter \(Graduate Student, American University\)
 
-o “Mirrors in the Sky: The Crisis of Identity in Drone Warfare”
+>“Mirrors in the Sky: The Crisis of Identity in Drone Warfare”
 
-#### Session 3a
+**Session 3a**
 
-• Brian Epstein \(Associate Professor, Tufts University\)
+- Brian Epstein \(Associate Professor, Tufts University\)
 
-o “Anchoring vs. Grounding”
+>“Anchoring vs. Grounding”
 
-• Ruth Groff \(Associate Professor, Saint Louis University\)
+- Ruth Groff \(Associate Professor, Saint Louis University\)
 
-o “Are Social Structures \(a\) Entities \(b\) Properties \(c\) Essences \(d\)
+>“Are Social Structures \(a\) Entities \(b\) Properties \(c\) Essences \(d\) Other?”
 
-Other?”
+**Session 3b**
 
-Session 3b
+- Kate Phelan \(Academic, Royal Melbourne Institute of Technology\)
 
-• Kate Phelan \(Academic, Royal Melbourne Institute of Technology\)
+>“Social Construction and the Possibility of Emancipation”
 
-o “Social Construction and the Possibility of Emancipation”
+- Filipa Melo Lopes \(Graduate Student University of Michigan\)
 
-• Filipa Melo Lopes \(Graduate Student University of Michigan\)
+>“Misogyny and \(Post-\)Feminist Backlash”
 
-o “Misogyny and \(Post-\)Feminist Backlash”
+**Break**
 
-#### Break
+#### 4:15-6:15pm
 
-4:15-6:15pm
 
- #### Break
-
- 4:15-6:15pm
-
- ### Session 4a
+**Session 4a**
 
  - Tina Fernades Botts (Assistant Professor, California State University, Fresno)
 
@@ -106,101 +101,86 @@ o “Misogyny and \(Post-\)Feminist Backlash”
 
 - Kevin Houser (Teaching Fellow, Case Western Reserve University)
 
->  o “Reasons as Alienated Social Relations”
+>“Reasons as Alienated Social Relations”
  
 - Laura Martin (Graduate Student, Columbia University)
 
 >"The Social Ontology of Systemic Injustice"
 
-Dinner
+**Dinner**
 
-Informal conversation – Hotel Ignacio
+- Informal conversation (Hotel Ignacio)
 
-Saturday, June 17th
+### Saturday, June 17th
 
-10:00-11:30
+#### 10:00-11:30
 
-Session 1
+**Session 1**
 
-• Vanessa Wills \(Assistant Professor, George Washington University\)
+- Vanessa Wills \(Assistant Professor, George Washington University\)
 
-o “Individual Action, Social Emergence and ‘the Laws of History’: On
+>“Individual Action, Social Emergence and ‘the Laws of History’: On the Collective as a Limit and Condition for Freedom”
 
-the
+-Patrick Murray/Jeanne Schuler \(Professor, Creighton University/Associate Professor, Creighton University\)
 
-Collective as a Limit and Condition for Freedom”
+>“The Commodity Spectrum: Simple Commodities, Commodities That Are Commodity Capital, Ex-Commodities, Potential Commodities, Quasi- Commodities”
 
-• Patrick Murray/Jeanne Schuler \(Professor, Creighton
+**Session 2**
 
-University/Associate
+- Arto Laitinen/Arvi Särkelä \(Professor, University of Tempere/Lecturer and Postdoctoral Researcher, University of Lucerne\)
 
-Professor, Creighton University\)
+>“Four Conceptions of Social Pathology”
 
-o “The Commodity Spectrum: Simple Commodities, Commodities That Are
+- Robert Lawrence, \(Mars Hill University\)
 
-Commodity Capital, Ex-Commodities, Potential Commodities, Quasi-
+> “Revolution and Pathology in Non-Atomistic Social Ontology”
 
-Commodities”
+**Lunch**
 
-Session 2
+#### 2:30-4:00
 
-• Arto Laitinen/Arvi Särkelä \(Professor, University of
+***Session 3***
 
-Tempere/Lecturer and
+- Kate Ritchie \(Assistant Professor, City College of New York, CUNY\)
 
-Postdoctoral Researcher, University of Lucerne\)
+>“Social Structures and the Ontology of Social Groups”
 
-o “Four Conceptions of Social Pathology”
+- Italo Testa \(Professor, Università di Parma\)
 
-• Robert Lawrence, \(Mars Hill University\)
+>“Habit and Critical Social Ontology”
 
-o “Revolution and Pathology in Non-Atomistic Social Ontology”
+**Break**
 
-Lunch
+#### 4:15-5:45
 
-2:30-4:00
+**Session 4**
 
-Session 3
+- Sally Haslanger \(Professor, MIT\)
 
-• Kate Ritchie \(Assistant Professor, City College of New York, CUNY\)
+>“Against Individualism, Yet Again!”
 
-o “Social Structures and the Ontology of Social Groups”
+- Doug Porpora \(Professor, Drexel\)
 
-• Italo Testa \(Professor, Università di Parma\)
+>“Are Parameters Causes?”
 
-o “Habit and Critical Social Ontology”
+#### 5:45-6pm
 
-Break
+**Wrap-up**
 
-4:15-5:45
 
-Session 4
 
-• Sally Haslanger \(Professor, MIT\)
-
-o “Against Individualism, Yet Again!”
-
-• Doug Porpora \(Professor, Drexel\)
-
-o “Are Parameters Causes?”
-
-5:45-6pm
-
-Wrap-up
-
-• Conference is open to the public -- $0-$30, based on what you can
+Conference is open to the public -- $0-$30, based on what you can
 
 afford.
 
-• There is a Critical Social Ontology Workshop fb page; website is
+
+There is a Critical Social Ontology Workshop fb page; website is
 
 coming soon!
 
-• Email:
+Email:
 
 [criticalsocialontologyworkshop@gmail.com](link)
 
-• CSOW is: Ruth Groff \(Coordinator\); Sally Haslanger; Tony Lawson;
 
-Doug Porpora; Vanessa Wills; Charlotte Witt.
 
