@@ -4,7 +4,9 @@
 
 **McGannon Hall - Saint Louis University, MO**
 
-### Friday, June 16th 9:30
+### Friday, June 16th 
+
+#### 9:30
 
 * Welcome
 
