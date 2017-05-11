@@ -6,71 +6,37 @@
 
 
 
- Friday, June 16th
+### Friday, June 16th 9:30 
+ - Welcome
 
 
 
- 9:30 Welcome
+#### 10:00-11:30
+
+**Session 1a**
+
+- Joshua Rust \(Associate Professor, Stetson University\)
+
+>“Real Social Kinds and the Continuity Between Institutional Statuses and Technical Artifacts”
+
+- Jules Salomone \(Graduate Student, CUNY\)
+
+>“Grades of Realism in Social Ontology”
 
 
 
- 10:00-11:30
+**Session 1b**
+
+- Larry Busk, \(Graduate Student, University of Oregon\)
+
+>“Islands of Freedom and Seas of Necessity: Arendt’s Disjunctive Political Ontology”
 
 
+- Timothy Rutzou \(Postdoctoral Fellow, Yale\)
 
- Session 1a
+>“After Naturalism: Social Ontology and the Contingent Ground of Value”
 
- Joshua Rust \(Associate Professor, Stetson University\)
-
-
-
- o “Real Social Kinds and the Continuity Between Institutional Statuses
-
- and
-
-
-
- Technical Artifacts”
-
-
-
- • Jules Salomone \(Graduate Student, CUNY\)
-
-
-
- o “Grades of Realism in Social Ontology”
-
-
-
- Session 1b
-
-
-
- • Larry Busk, \(Graduate Student, University of Oregon\)
-
-
-
- o “Islands of Freedom and Seas of Necessity: Arendt’s Disjunctive
-
- Political
-
-
-
- Ontology”
-
-
-
- • Timothy Rutzou \(Postdoctoral Fellow, Yale\)
-
-
-
- o “After Naturalism: Social Ontology and the Contingent Ground of
-
- Value”
-
-
-
- Break
+#### Break
 
 
 
