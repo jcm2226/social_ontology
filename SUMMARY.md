@@ -1,3 +1,7 @@
-# Table of content
+# Summary
 
-* [First Chapter](chapter1.md)
+* [About](README.md)
+* [People](chapter1.md)
+* Resources
+* Conferences
+
