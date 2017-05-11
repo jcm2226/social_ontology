@@ -30,11 +30,11 @@
 
 > “After Naturalism: Social Ontology and the Contingent Ground of Value”
 
-#### Break
+<p align="center"> **Break**</p>
 
-11:45-1:15
+#### 11:45-1:15
 
-#### Session 2a
+**Session 2a**
 
 * Andrew Payne \(Associate Professor, Saint Joseph’s University\)
 
@@ -56,7 +56,7 @@ o “A World in Which Many Worlds Fit?”
 
 o “Mirrors in the Sky: The Crisis of Identity in Drone Warfare”
 
-Session 3a
+#### Session 3a
 
 • Brian Epstein \(Associate Professor, Tufts University\)
 
@@ -78,7 +78,7 @@ o “Social Construction and the Possibility of Emancipation”
 
 o “Misogyny and \(Post-\)Feminist Backlash”
 
-Break
+#### Break
 
 4:15-6:15pm
 
