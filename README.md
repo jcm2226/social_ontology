@@ -1,4 +1,4 @@
 # Critical Social Ontology Workshop
 
-This file file serves as your book's preface, a great place to describe your book's content and ideas.
+The Critical Social Ontology Workshop is a newly formed interdisciplinary venue for radical thinking about the metaphysics of irreducibly social phenomena.
 
